@@ -14,7 +14,7 @@
 ### #1烂人 │ Keith
 
 <p>
-➤ <b>Typology :</b> ESTP • SLE • 8w7 (825) • so/sp • VFEL • Chol-Sang<br>
+➤ <b>Typology :</b> ESTP • SLE • 8w7 (825) • so/sp • VFEL • Chol-Sang • /S/Cu[E]I <br>
 ➤ feel free to interact﹗ I love making friends, i'm just here to have fun (OP fans hmu)<br>
  Sometimes offtab making skins, usually at spawn.<br>
 ➤ <b>Currently Into :</b> GK, OP, DRHDR, BRBA, BJHM & RPGMaker games (refer to my strawpage for the full list)<br>
