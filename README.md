@@ -9,7 +9,7 @@
 
 <td valign="top">
 
-### #1烂人 │ Keith
+#1烂人 │ Keith
 
 <p>
 ➤ <b>Typology :</b> ESTP • SLE • 8w7 (825) • so/sp • VFEL • Chol-Sang<br>
