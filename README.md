@@ -17,7 +17,7 @@
 ➤ <b>Typology :</b> ESTP • SLE • 8w7 (825) • so/sp • VFEL • Chol-Sang • /S/Cu[E]I <br>
 ➤ feel free to interact﹗ I love making friends, i'm just here to have fun (OP fans hmu)<br>
  Sometimes offtab making skins, i can get distracted a lot so bear with me<br>
-➤ <b>Currently Into :</b> GK, OP, DRHDR, BRBA, BJHM & RPGMaker games (refer to my strawpage for the full list)<br>
+➤ <b>Currently Into :</b> GK , OP , DRHDR , BRBA/BCS , BJHM & RPGMaker games (refer to my strawpage for the full list)<br>
 ➤ I don’t hide people unless you harass me or others
 </p>
 
