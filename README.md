@@ -11,7 +11,6 @@
 
 ### #1烂人 │ Keith
 
-**Illustrator & Designer**  
 **He/Him** │ **19** │ **FIL / ENG**
 
 <p>
